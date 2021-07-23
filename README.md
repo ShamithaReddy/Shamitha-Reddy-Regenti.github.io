@@ -1,3 +1,3 @@
 # Shamitha-Reddy-Regenti.github.io
 
-https://github.com/ShamithaReddy
+https://shamithareddy.github.io/Shamitha-Reddy-Regenti.github.io/
